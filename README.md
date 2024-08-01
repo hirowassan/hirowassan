@@ -3,8 +3,8 @@
 
 My name is hirowassan
  
-14 years old
+15 years old
  
-juniour high school student
+high school student
  
 I'm Japanese, So I can't understand difficult English.
